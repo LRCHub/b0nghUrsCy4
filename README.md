@@ -1,0 +1,79 @@
+# NiziU – YOAKE
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Lalalala Light is dawning
+Lalalala Shining on me
+夢の向こうの夜明け
+ひだまりのような温もり
+もらうのに慣れてた
+その腕の中から Fly out
+決めた瞬間
+I had to learn to fall
+時にはRain 時には Sunny days
+借りものの羽根じゃない
+自分の力で飛ぶことってSo hard
+でも本能で感じるの
+Almost
+Dawn Dawn 変わってく
+Light Light 息のむ View
+想像より広い世界
+Break the dawn dawn
+今を生きる自分
+抱きしめたいと思った
+Come on
+Lalalala Light is dawning
+Lalalala Shining on me
+Lalalala It's a brand new day
+(Dawn dawn dawn)
+Lalalala Light is dawning
+Lalalala Shining on me
+夢の向こうの夜明け
+本当は少し怖かったし
+君がくれた全て
+自分にしてあげるのってSo hard
+でもこうして飛べてるよ
+Almost
+Dawn Dawn 変わってく
+Light Light 息のむ View
+想像より広い世界
+Break the dawn dawn
+今を生きる自分
+抱きしめたいと思った
+Come on
+Lalalala lalalala
+Lalalala lalalala
+Lalalala lalalalala
+(Dawn dawn dawn)
+Lalalala lalalala
+Lalalala lalalala
+夢の向こうの夜明け
+Between night and light
+未来がOver here
+想像超える
+HappeningもIt's all ok
+На На На
+Look at the sky it's stunning
+何が起きても Excited
+Just follow my heart
+Follow my heart
+Alright
+Alright
+Alright
+Almost
+Dawn Dawn 変わってく
+Light Light 息のむ View
+想像より広い世界
+Break the dawn dawn
+今を生きる自分
+抱きしめたいと思った
+Come on
+Lalalala Light is dawning
+Lalalala Shining on me
+Lalalala It's a brand new day
+(Dawn dawn dawn)
+Lalalala Light is dawning
+Lalalala Shining on me
+夢の向こうの夜明け
+```
